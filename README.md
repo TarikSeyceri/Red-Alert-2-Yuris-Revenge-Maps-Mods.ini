@@ -1,9 +1,9 @@
 # Red-Alert 2 & Yuri's Revenge Game (Maps & Mods)
-Red Alert 2 &amp; Yuri's Revenge Game: Best Picked Maps and Mods Developed by Me Since 2002
+Red Alert 2 &amp; Yuri's Revenge Game: Best Picked Maps and Best Mods Developed by Me Since 2002
 
-You are free to use (play with, and edit) any Map/Mod you like
+You are free to play with any Map/Mod and edit any Mod you like
 
-Made out from being a big Fan of Red Alert
+Maps picked and Mods made out from being a big Fan of Red Alert
 
 Enjoy!
 
