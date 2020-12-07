@@ -5,5 +5,7 @@ You are free to play with any Map/Mod and edit any Mod you like
 
 Maps picked and Mods made out from being a big Fan of Red Alert
 
+Watch a video of how the game would be with this mod: https://youtu.be/oWxakKM1Uok
+
 Enjoy!
 
